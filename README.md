@@ -1,4 +1,4 @@
-# 🪑 Hashtechy AI Specialist — Skill Assessment Submission
+# 🪑 Hashtechy AI Specialist  Skill Assessment Submission
 
 **Submitted by:** Hanshika Thukral · **Date:** April 2026
 
